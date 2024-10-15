@@ -24,8 +24,8 @@ The wheel is spun, and if the outcome matches the player's bet, they win based o
 <h3 align=center>
 <img src='https://www.dioup.org/wp-content/uploads/2023/12/Crazy-Time-Tracker-1-1024x585.jpg'width="720" height="400">
 <h3 align=center>
-   <th scope="col"><a href="https://link.fun88-india.com/blog-crazy-time-history">crazy time history</th>
 <table align=center> <tr>
+      <th scope="col"><a href="https://link.fun88-india.com/blog-crazy-time-history">Crazy Time History</th>
  </tr></table></h3></h3>
 
 The development of Crazy Time by Evolution Gaming marked a new era for live casino games. Since its release, it has gained massive popularity due to its engaging and interactive format. Players around the globe can track the crazy time history today, which includes data on previous spins, the outcomes of each round, and the frequency of bonus rounds. This information is useful for those trying to develop strategies based on historical trends.
